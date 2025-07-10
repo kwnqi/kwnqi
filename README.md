@@ -26,3 +26,7 @@
 
 * * *
 > I'm also a beta tester for a project in Fortnite that I won't advertise, but it's like home to me.
+
+
+
+[MAL](https://myanimelist.net/animelist/CandyTwix).
