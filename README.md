@@ -23,3 +23,6 @@
 ![Screenshot_1](https://github.com/user-attachments/assets/125016e9-1d8f-4189-95c9-8732a2ceb9ac)
 
 + ***And I also have a [TikTok](https://tiktok.com/@yeahiamkendi) channel with memes*** 😃
+
+* * *
+> I'm also a beta tester for a project in Fortnite that I won't advertise, but it's like home to me.
