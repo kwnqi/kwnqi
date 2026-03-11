@@ -10,7 +10,7 @@
 
 
 ## 👥 Profession/Career
-> ***I work as a designer*** 🎨
+> ***I work as a designer & artist *** 🎨
 
 * * *
 
