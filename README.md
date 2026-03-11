@@ -10,19 +10,13 @@
 
 
 ## 👥 Profession/Career
-> ***I work as a designer & artist *** 🎨
+> ***I work as a Designer.*** 🎨
+> ***I work with sound and image and am also interested in AI.*** 🤖
 
 * * *
 
 ## 🏅 Merits
 > ***I don't have many merits, in most cases I just helped. For example, I helped with teasers or video editing.***
-
-* * *
-+ ***I also help run a [Discord Server](https://discord.gg/UWrMUwfAEw) for the long-since popular 2010 cartoon, if you are interested, you can join!*** 😉
-
-![Screenshot_1](https://github.com/user-attachments/assets/125016e9-1d8f-4189-95c9-8732a2ceb9ac)
-
-+ ***And I also have a [TikTok](https://tiktok.com/@realkendi) channel with memes*** 😃
 
 * * *
 > I'm also a beta tester for a project in Fortnite that I won't advertise, but it's like home to me.
