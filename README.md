@@ -12,7 +12,7 @@
 ## 👥 Profession/Career
 > ***I work as a Designer.*** 🎨
 > 
-> ***I work with sound and image and am also interested in AI.*** 🤖
+> ***I work with sound and image, and am also interested in AI (in terms of sound).*** 🤖
 
 * * *
 
