@@ -20,7 +20,4 @@
 > ***I don't have many merits, in most cases I just helped. For example, I helped with teasers or video editing.***
 
 * * *
-> I'm also a beta tester for a project in Fortnite that I won't advertise, but it's like home to me.
-
-* * *
 + ****[MAL](https://myanimelist.net/animelist/kwnqi).****
