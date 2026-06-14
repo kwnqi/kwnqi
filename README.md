@@ -1,5 +1,5 @@
 # ***Hi, I'm Kendi!*** 👋
-***And you won't find out much about me here.***
+> ***And you won't find out much about me here.***
 
 ## 😃 Hobbies
 + Listening to music of different genres, including **Retro** 🎞️
