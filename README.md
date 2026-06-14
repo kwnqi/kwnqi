@@ -20,4 +20,5 @@
 > ***I don't have many merits, in most cases I just helped. For example, I helped with teasers or video editing***
 
 * * *
-+ ****[MAL](https://myanimelist.net/animelist/kwnqi)**** ****[All Links](https://kwnqi.carrd.co/)****
++ ****[MAL](https://myanimelist.net/animelist/kwnqi)**** 
++ ****[All Links](https://kwnqi.carrd.co/)****
