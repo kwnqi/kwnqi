@@ -1,5 +1,5 @@
 # ***Hi, I'm Kendi!*** 👋
-> ***And you won't find out much about me here.***
+> ***And you won't find out much about me here***
 
 ## 😃 Hobbies
 + Listening to music of different genres, including **Retro** 🎞️
@@ -12,12 +12,14 @@
 ## 👥 Profession/Career
 > ***I work as a Designer.*** 🎨
 > 
-> ***I work with sound and image, and am also interested in AI (in terms of sound).*** 🤖
+> ***I work with sound and image, and am also interested in AI (in terms of sound)*** 🤖
 
 * * *
 
 ## 🏅 Merits
-> ***I don't have many merits, in most cases I just helped. For example, I helped with teasers or video editing.***
+> ***I don't have many merits, in most cases I just helped. For example, I helped with teasers or video editing***
 
 * * *
-+ ****[MAL](https://myanimelist.net/animelist/kwnqi).****
++ ****[MAL](https://myanimelist.net/animelist/kwnqi)****
+* * *
++ ****[All Links](https://kwnqi.carrd.co/)****
