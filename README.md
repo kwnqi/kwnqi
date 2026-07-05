@@ -27,6 +27,6 @@
 
 ## 🔗 Links
 > + ****[YouTube](https://www.youtube.com/@kwnqi)****
-> + ****[My Anime List](https://myanimelist.net/animelist/kwnqi)**** 
+> + ****[My Anime List](https://myanimelist.net/animelist/kwnqi)**** & ****[AniList](https://anilist.co/user/kwnqi/)****
 > + ****[Games](https://backloggd.com/u/Kendi/)****
 > + ****[All Links](https://kwnqi.carrd.co/)****
