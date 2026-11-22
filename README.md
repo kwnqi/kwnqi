@@ -4,8 +4,7 @@
 ## 😃 Hobbies
 + Listening to music of different genres, including **Retro** 🎞️ (*this also applies to games*)
 + I play Osu! and Fortnite and I run a [**YouTube**](https://youtube.com/@kwnqi) channel about this game 🎮
-
-<img width="1248" height="832" alt="image" src="https://github.com/user-attachments/assets/3eb3fdf5-6233-4544-85c0-cbda04b7799f" />
++ I also maintain profiles on Twitter (now X) and DeviantArt, where I post my work in the form of anime-style art 🖌️
 
 + Besides that I am also interested in [**Vocaloids**](https://en.wikipedia.org/wiki/Vocaloid)/[**UTAUloids**](https://utau.fandom.com/wiki/UTAUloids) and watching videos on YouTube like "**YTPMV**" and "**【音MAD】**"
 
