@@ -6,7 +6,7 @@
 + I play Osu! and Fortnite and I run a [**YouTube**](https://youtube.com/@kwnqi) channel about this game 🎮
 + I also maintain profiles on Twitter (now X) and DeviantArt, where I post my work in the form of anime-style art 🖌️
 
-## 😃 Hobbies (II)
+##
 
 + Besides that I am also interested in [**Vocaloids**](https://en.wikipedia.org/wiki/Vocaloid)/[**UTAUloids**](https://utau.fandom.com/wiki/UTAUloids) and watching videos on YouTube like "**YTPMV**" and "**【音MAD】**"
 
