@@ -8,7 +8,7 @@
 
 ##
 
-+ Besides that I am also interested in [**Vocaloids**](https://en.wikipedia.org/wiki/Vocaloid)/[**UTAUloids**](https://utau.fandom.com/wiki/UTAUloids)/[**SV**]([https://utau.fandom.com/wiki/UTAUloids)(http://en.wikipedia.org/wiki/Synthesizer_V)) and watching videos on YouTube like "**YTPMV**" and "**【音MAD】**"
++ Besides that I am also interested in [**Vocaloids**](https://en.wikipedia.org/wiki/Vocaloid)/[**UTAUloids**](https://utau.fandom.com/wiki/UTAUloids)/[**SV**](https://utau.fandom.com/wiki/UTAUloids)(http://en.wikipedia.org/wiki/Synthesizer_V)) and watching videos on YouTube like "**YTPMV**" and "**【音MAD】**"
 
 ![foni-papik-pro-q05g-p-kartinki-khatsune-miku-na-prozrachnom-fone-4](https://github.com/user-attachments/assets/242f7070-91cd-4fed-a261-e15227e72eb1)
 
